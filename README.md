@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Deidre25
-- 👀 I’m interested in ...
+- 👀 I’m interested in learn and play.
 - 🌱 I’m currently learning to code without breaking my computer.
 - 💞️ I’m looking to collaborate on projects that involve interesting coding stuff.
 - 📫 How to reach me: just send a message.
